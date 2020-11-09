@@ -2,4 +2,4 @@
 
 hellow there!
 
-i've ethiopian coffee every mornning.(thays what i made of).
+i've ethiopian coffee every mornning.(that is what i made of).
